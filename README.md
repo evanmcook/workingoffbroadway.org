@@ -41,4 +41,9 @@ have an opinion on a venue you've worked at recently? [leave a review at gig int
 
 ### sound-related resources
 
-for information about navigating sound systems located in, or designed in a new-york-theater-centric style, visit [soundreferencenotes.com](https://soundreferencenotes.com/)
+for information about navigating sound systems located in, or designed in a new-york-theater-centric style, visit [soundreferencenotes.com](https://soundreferencenotes.com/)  
+
+### props-related resources
+
+for resources compiled by a collective of props workers local to new york city , visit [The Prop Guild](https://thepropguild.com/). 
+to access the resources, send the guild an email that you would like to join. 
