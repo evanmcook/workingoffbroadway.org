@@ -16,6 +16,8 @@ if your employer sets your schedule, **you should onboard on a W-4, to later rec
 being an employee means you have rights to minimum wage, breaks, overtime, and collective bargaining.  
 [you can read more about being misclassified here.](https://www.wnylabortoday.com/news/2023/04/23/labor-news-from-washington-d.c./employer-misclassification-of-workers-as-independent-contractors-robs-workers-new-economic-policy-institute-analysis-estimates-the-economic-costs-of-misclassifying-workers-as-independent-contractors/)  
 
+[also, take a moment to review your rights as a worker in NYC.](https://www.nyc.gov/site/dca/workers/workersrights/know-your-worker-rights.page)
+
 ### witnessed a safety issue at work?  
 [federal law entitles workers to a safe workplace.](https://www.osha.gov/workers)  
 if you perceive a safety issue in your live performance workplace, in addition to following your employer's hazard reporting plan,   
